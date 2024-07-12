@@ -6,5 +6,5 @@ I play multiple PonyTown custom servers.
 I enjoy making ponies, and sometimes I make ponies for others.
 </p>
 <p align="center">
-Please do not copy any of my ponies, they are all OCs.
+Please do not copy any of my ponies. They are my OCs and I work hard on them.
 </p>
